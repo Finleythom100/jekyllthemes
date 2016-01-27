@@ -12,5 +12,7 @@ When I got into school I shoved my heavy bag in my locker and got my friend Joe 
 
 Finally, after a long and busy morning it was lunch, and I looooooooove food. Our final two periods were History and Music. In History we made our board games, mine, Morgans and Finn's is called Monastropoly which is a better and quicker version of monopoly involving Henry VIII. Finally we had music which we performed or sung a song. I played jingle bells on the guitar.
 
-When I got home I heard very sad news. My big sister Katherine was coming over. After that my mum made me do my IT homework, which is this blog, and here I am now writing this very blog.
+When I got home I heard very sad news. My big sister Katherine was coming over.
+
+ After that my mum made me do my IT homework, which is this blog, and here I am now writing this very blog.
 
